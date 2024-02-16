@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Justice and Peace
 - 🌱 I’m currently learning ...Management of the Common Good
 - 💞️ I’m looking to collaborate on ...with the Great Reset
-- 📫 How to reach me ...governanceconnection1984@gmail.com
+- 📫 How to reach me ...https://www.linkedin.com/in/oneide-maria-pessoa-do-r%C3%AAgo-lobo-617a6025b/
 - 😄 Pronouns: ...She
 - ⚡ Fun fact: ...Being able to be fun in the face of adversity
 
